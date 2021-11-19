@@ -1,2 +1,2 @@
-# Yuanhao-JIANG.github.io
-This is my very first webpage, hope you like it. :)
+# exploreinfinity.github.io
+Welcome to Xinyue Chen's webpage!
